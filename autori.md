@@ -1,5 +1,5 @@
 #Autori
 
 Autori:
-Štefan Malik  Bench:150kg
-Lukáš Varga  Bench:45kg
+Štefan Malik  Bench:60kg??
+Lukáš Varga  Bench:110kg
